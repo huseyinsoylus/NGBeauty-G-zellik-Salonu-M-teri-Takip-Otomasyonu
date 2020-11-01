@@ -1,0 +1,1 @@
+# NGBeauty-G-zellik-Salonu-M-teri-Takip-Otomasyonu
